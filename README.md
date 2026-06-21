@@ -1,0 +1,1 @@
+# Khairiansyah_233510311_UAS_Prak_NLP
